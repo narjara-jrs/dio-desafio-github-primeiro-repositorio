@@ -1,28 +1,28 @@
-#INGREDIENTES
+ï»¿#INGREDIENTES
 ##MASSA
-* 1/2 xícara (chá) de óleo
-* 3 cenouras médias raladas
+* 1/2 xÃ­cara (chÃ¡) de Ã³leo
+* 3 cenouras mÃ©dias raladas
 * 4 ovos
-* 2 xícaras (chá) de açúcar
-* 2 e 1/2 xícaras (chá) de farinha de trigo
-* 1 colher (sopa) de fermento em pó
+* 2 xÃ­caras (chÃ¡) de aÃ§Ãºcar
+* 2 e 1/2 xÃ­caras (chÃ¡) de farinha de trigo
+* 1 colher (sopa) de fermento em pÃ³
 ##COBERTURA
 * 1 colher (sopa) de manteiga
-* 3 colheres (sopa) de chocolate em pó
-* 1 xícara (chá) de açúcar
-* 1 xícara (chá) de leite
+* 3 colheres (sopa) de chocolate em pÃ³
+* 1 xÃ­cara (chÃ¡) de aÃ§Ãºcar
+* 1 xÃ­cara (chÃ¡) de leite
 
 #MODO DE PREPARO
 ##MASSA
-1. Em um liquidificador, adicione a cenoura, os ovos e o óleo, depois misture.
-2. Acrescente o açúcar e bata novamente por 5 minutos.
+1. Em um liquidificador, adicione a cenoura, os ovos e o Ã³leo, depois misture.
+2. Acrescente o aÃ§Ãºcar e bata novamente por 5 minutos.
 3. Em uma tigela ou na batedeira, adicione a farinha de trigo e depois misture novamente.
 4. Acrescente o fermento e misture lentamente com uma colher.
-5. Asse em um forno preaquecido a 180° C por aproximadamente 40 minutos.
+5. Asse em um forno preaquecido a 180Â° C por aproximadamente 40 minutos.
 
 ##COBERTURA
-1. Despeje em uma tigela a manteiga, o chocolate em pó, o açúcar e o leite, depois misture.
-2.Leve a mistura ao fogo e continue misturando até obter uma consistência cremosa, depois despeje a calda por cima do bolo.
+1. Despeje em uma tigela a manteiga, o chocolate em pÃ³, o aÃ§Ãºcar e o leite, depois misture.
+2.Leve a mistura ao fogo e continue misturando atÃ© obter uma consistÃªncia cremosa, depois despeje a calda por cima do bolo.
 
-*INFORMAÇÕES ADICIONAIS*
-OBS: Você poderá seguir ao vídeo ou a receita escrita, o resultado sairá perfeito dos 2 modos.
+*INFORMAÃ‡Ã•ES ADICIONAIS*
+OBS: VocÃª poderÃ¡ seguir ao vÃ­deo ou a receita escrita, o resultado sairÃ¡ perfeito dos 2 modos.

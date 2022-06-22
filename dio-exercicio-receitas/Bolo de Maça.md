@@ -1,20 +1,20 @@
-#Bolo de Maça
+ï»¿#Bolo de MaÃ§a
 ##INGREDIENTES
-* 2 xícaras de farinha de trigo
-* 2 xícaras de açúcar
-* 1 colher de sopa de fermento em pó
-* 1 colher de sopa de canela em pó
+* 2 xÃ­caras de farinha de trigo
+* 2 xÃ­caras de aÃ§Ãºcar
+* 1 colher de sopa de fermento em pÃ³
+* 1 colher de sopa de canela em pÃ³
 * 1 pitada de sal
 * 3 ovos
-* 3 maçãs grandes
-* 1 xícara de óleo vegetal
+* 3 maÃ§Ã£s grandes
+* 1 xÃ­cara de Ã³leo vegetal
 
 ##MODO DE PREPARO
-1. Unte e polvilhe com farinha um tabuleiro médio (23×35), ou uma fôrma de buraco no meio.
-2. Em uma tigela grande, peneirar a farinha e o açúcar. Juntar os demais ingredientes secos. Reservar.
-3. Descascar as maçãs, reservando as cascas. Picar em cubinhos.
-4. Bater no liquidificador os ovos, o óleo e as cascas da maçã.
+1. Unte e polvilhe com farinha um tabuleiro mÃ©dio (23Ã—35), ou uma fÃ´rma de buraco no meio.
+2. Em uma tigela grande, peneirar a farinha e o aÃ§Ãºcar. Juntar os demais ingredientes secos. Reservar.
+3. Descascar as maÃ§Ã£s, reservando as cascas. Picar em cubinhos.
+4. Bater no liquidificador os ovos, o Ã³leo e as cascas da maÃ§Ã£.
 5. Juntar essa mistura na tigela com os ingredientes secos e misturar delicadamente.
-6. Junte as maçãs picadas, misture e despeje na assadeira.
-7. Asse por cerca de 40 a 50 minutos em forno médio.
-8. Depois de pronto polvilhar açúcar e canela.
+6. Junte as maÃ§Ã£s picadas, misture e despeje na assadeira.
+7. Asse por cerca de 40 a 50 minutos em forno mÃ©dio.
+8. Depois de pronto polvilhar aÃ§Ãºcar e canela.
